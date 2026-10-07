@@ -1,0 +1,1 @@
+Centralização de imagens
